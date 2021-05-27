@@ -1,1 +1,1 @@
-# FastingFurious
+# Fast
